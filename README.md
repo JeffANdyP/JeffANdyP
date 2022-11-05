@@ -1,10 +1,11 @@
 ### Hi there 👋
 
-Code -> MP4 -> GIF https://www.canva.com/design/DAFRGbLpJ1A/Oly1TrApvewel8b6xAwjbQ/watch?utm_content=DAFRGbLpJ1A&utm_campaign=celebratory_first_publish&utm_medium=link&utm_source=celebratory_first_publish
+https://user-images.githubusercontent.com/112591057/200134766-39b25786-3024-4df2-83b7-6c75892578ba.mp4
 
 
 
-![Red and Blue Futuristic Technology Facebook Cover](https://user-images.githubusercontent.com/112591057/200134559-e8ae2de6-44e5-4469-ab8a-1c70a4bec1ba.jpg)
+
+
 
 
 
