@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-https://www.canva.com/design/DAFRGbLpJ1A/Oly1TrApvewel8b6xAwjbQ/watch?utm_content=DAFRGbLpJ1A&utm_campaign=celebratory_first_publish&utm_medium=link&utm_source=celebratory_first_publish
+
 
 
 
